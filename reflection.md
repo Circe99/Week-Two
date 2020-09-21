@@ -1,1 +1,8 @@
-
+# *The Monumental Archive Project*
+  "data  created  through  commercial,  academic,  and  community avenues continues to be dominated by white historical narratives, often restricting the (perceived) usefulness of data and its relevance to contemporary research and understandings of the past"
+  This is such a common issue in many of my art and architectural history courses. It was even relevent in last weeks reading where Katherine Cook again talked about issues in diversity. However, I don't believe there is a way to collect data without being selective of what you choose to make important vs what you think can be left out for two reasons. The first would be because any person who is collecting the data will have a specific background of knowledge and that will interfere in their perseption of what data to collect. The second is that if you were to gather all of the data possible, you would then be overloaded with so much info it would be impossible to organize it and decipher it. But that doesn't mean that the data we collect should take on the narrative often given by (mainly white) western cultures, so it is important to realize that we are limited in our knowledge and do our best to reach out to the appropriate resources (whether that be talking directly to people or reading primary/secondary sources) so that the data can be analyzed with the correct lens.
+  
+  "(style,  iconography,  font,  material)"
+  A good range to approach this particular project. I wonder if I or any of the other students will be able to find any other data that could be important to the project? Maybe size of the monument? Or amount of detail in terms of added iconography? (if so I will add it here)
+  
+  
