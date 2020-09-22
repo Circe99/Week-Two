@@ -8,4 +8,5 @@
   "If monuments are too recent, there  are  concerns  with  the  copyright  of  stonemasons  and  the  personal information recorded on monuments. If the monuments are much older, there are concerns about the ethics of digitizing objects associated with the dead, when it would often be impossible to  seek  photo  permissions  and  data  sharing  consent  from  next  of kin." (Cook, 185)
   This ethical conundrum in this quote is something I would like to explore further and maybe even find an answer/solution to. Though I doubt that since there will always be someone to oppose me. (Nonetheless I will post it to the discord page and add any quotes I find interesting/hepful)
   
+# *My Deilemma* The Ethics of this Assignment
   
