@@ -10,3 +10,6 @@
   
 # *My Deilemma* The Ethics of this Assignment
   
+  In my last paragraph I put in a quote that I feel highlights the ethical issue with this assignment. And that would be *"Is it ok to post this information?"*. I had posted the quote to the group chat in week two to see what others thought about this issue, and Dr. Graham mentioned an interesting point about a tombstone that was etched to have the face of the person on it. Would that then mean that this stone (in the future) shouldn't be used?
+  
+  To work my way around the issues of using a stone that is too recent or too old, I went to a site that is currently in the process of applying for heritage statues because of it's many important public figures. In a case like this, I personally believe that the ethical issues of posting something so personal is less of a sore spot since the site it a public space. But for all I know that could be wrong. :)
